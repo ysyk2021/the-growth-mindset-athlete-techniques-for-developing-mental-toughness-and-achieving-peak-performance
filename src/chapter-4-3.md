@@ -1,4 +1,4 @@
-Applying the Growth Mindset to Achieve Athletic Excellence: Best Practices for Promoting Positive Relationships and Collaboration with Coaches, Teammates, and Opponents through the Growth Mindset
+Best Practices for Promoting Positive Relationships and Collaboration with Coaches, Teammates, and Opponents through the Growth Mindset
 ===================================================================================================================================================================================================
 
 In addition to individual techniques for developing mental toughness and achieving peak performance, applying the growth mindset approach can also help athletes build positive relationships and collaborate effectively with coaches, teammates, and opponents. In this chapter, we will explore best practices for promoting positive relationships and collaboration through the growth mindset.

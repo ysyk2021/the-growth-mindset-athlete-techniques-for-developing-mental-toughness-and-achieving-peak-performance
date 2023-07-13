@@ -1,4 +1,4 @@
-Overcoming Challenges with the Growth Mindset for Athletes: Understanding Common Challenges with the Growth Mindset for Athletes
+Understanding Common Challenges with the Growth Mindset for Athletes
 ================================================================================================================================
 
 Adopting a growth mindset is essential for developing mental toughness and achieving peak performance in athletics. However, there are common challenges that athletes may face when trying to cultivate a growth mindset. In this chapter, we will explore these challenges and provide strategies for overcoming them.

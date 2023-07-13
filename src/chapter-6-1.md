@@ -1,4 +1,4 @@
-Managing Resources with the Growth Mindset for Athletes: Understanding the Importance of Resource Management in the Growth Mindset for Athletes
+Understanding the Importance of Resource Management in the Growth Mindset for Athletes
 ===============================================================================================================================================
 
 Effective resource management is essential for achieving peak performance in athletics and maintaining balance in personal life. In this chapter, we will explore the importance of resource management in the growth mindset for athletes.

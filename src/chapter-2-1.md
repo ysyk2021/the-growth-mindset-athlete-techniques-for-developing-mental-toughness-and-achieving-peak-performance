@@ -1,4 +1,4 @@
-Understanding the Growth Mindset Athlete: Defining the Growth Mindset Athlete and its Importance in Achieving Peak Performance
+Defining the Growth Mindset Athlete and its Importance in Achieving Peak Performance
 ==============================================================================================================================
 
 The growth mindset athlete is an individual who possesses a mindset that prioritizes learning, resilience, and continuous improvement. In this chapter, we will define the growth mindset athlete and explore its importance in achieving peak performance.

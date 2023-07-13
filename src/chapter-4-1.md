@@ -1,4 +1,4 @@
-Applying the Growth Mindset to Achieve Athletic Excellence: Strategies for Applying the Growth Mindset to Achieve Athletic Excellence
+Strategies for Applying the Growth Mindset to Achieve Athletic Excellence
 =====================================================================================================================================
 
 In order to achieve athletic excellence, athletes must apply the growth mindset approach to their training and competition. In this chapter, we will explore strategies for applying the growth mindset to achieve athletic excellence.

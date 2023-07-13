@@ -1,4 +1,4 @@
-Introduction: Overview of the Book
+Overview of the Book
 ==================================
 
 The Growth Mindset Athlete is a book that provides techniques for developing mental toughness and achieving peak performance in athletics. In this book, we will explore the concept of growth mindset and its importance in athletic success. We will also provide practical strategies and exercises for cultivating a growth mindset and improving mental toughness.

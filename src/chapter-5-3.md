@@ -1,4 +1,4 @@
-Measuring the Success of Your Growth Mindset Efforts for Athletic Performance: Using Feedback to Continuously Improve Growth Mindset Efforts for Athletic Performance
+Using Feedback to Continuously Improve Growth Mindset Efforts for Athletic Performance
 =====================================================================================================================================================================
 
 Adopting a growth mindset is essential for developing mental toughness and achieving peak performance in athletics. However, it can be difficult to measure the success of growth mindset efforts. In this chapter, we will explore how athletes can use feedback to continuously improve their growth mindset efforts for athletic performance.

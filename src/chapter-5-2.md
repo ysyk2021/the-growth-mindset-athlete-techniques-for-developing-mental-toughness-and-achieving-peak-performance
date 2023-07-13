@@ -1,4 +1,4 @@
-Measuring the Success of Your Growth Mindset Efforts for Athletic Performance: Gathering Data on Growth Mindset Activities for Athletic Performance
+Gathering Data on Growth Mindset Activities for Athletic Performance
 ===================================================================================================================================================
 
 Measuring the success of growth mindset efforts is an important component of achieving peak performance in athletics. In addition to seeking feedback, tracking progress, and reflecting on experiences, gathering data on growth mindset activities can provide valuable insights into the effectiveness of different strategies. In this chapter, we will explore how athletes can gather data on growth mindset activities for athletic performance.

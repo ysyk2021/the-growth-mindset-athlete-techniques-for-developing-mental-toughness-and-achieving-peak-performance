@@ -1,4 +1,4 @@
-Introduction: The Importance of the Growth Mindset in Athletic Performance
+The Importance of the Growth Mindset in Athletic Performance
 ==========================================================================
 
 Athletic success is not just about physical ability but also mental toughness and resilience. The growth mindset, a concept developed by psychologist Carol Dweck, has gained widespread recognition as an essential component of achieving peak performance in athletics. In this chapter, we will explore the importance of the growth mindset in athletic performance.

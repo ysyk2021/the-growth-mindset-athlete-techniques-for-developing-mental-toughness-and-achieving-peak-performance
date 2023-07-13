@@ -1,4 +1,4 @@
-Overcoming Challenges with the Growth Mindset for Athletes: Best Practices for Dealing with Setbacks and Staying on Track with the Growth Mindset for Athletes
+Best Practices for Dealing with Setbacks and Staying on Track with the Growth Mindset for Athletes
 ==============================================================================================================================================================
 
 Setbacks are an inevitable part of athletic performance, and overcoming them requires mental toughness and resilience. In this chapter, we will explore best practices for dealing with setbacks and staying on track with the growth mindset.

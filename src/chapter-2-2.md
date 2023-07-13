@@ -1,4 +1,4 @@
-Understanding the Growth Mindset Athlete: Key Elements of Successful Growth Mindset Athletes
+Key Elements of Successful Growth Mindset Athletes
 ============================================================================================
 
 Successful growth mindset athletes possess several key elements that set them apart from others. In this chapter, we will explore these key elements and their importance in developing a growth mindset for athletic success.

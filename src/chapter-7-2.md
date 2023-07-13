@@ -1,4 +1,4 @@
-Overcoming Challenges with the Growth Mindset for Athletes: Strategies for Overcoming Fear and Resistance to Change
+Strategies for Overcoming Fear and Resistance to Change
 ===================================================================================================================
 
 Challenges are an inevitable part of athletic performance, and overcoming them requires mental toughness and resilience. In this chapter, we will explore strategies for overcoming fear and resistance to change with the growth mindset.

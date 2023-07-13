@@ -1,4 +1,4 @@
-Managing Resources with the Growth Mindset for Athletes: Best Practices for Balancing Workload and Personal Life through the Growth Mindset for Athletes
+Best Practices for Balancing Workload and Personal Life through the Growth Mindset for Athletes
 ========================================================================================================================================================
 
 Balancing workload and personal life is crucial for maintaining good mental health and achieving athletic success. In this chapter, we will explore best practices for balancing workload and personal life through the adoption of a growth mindset.

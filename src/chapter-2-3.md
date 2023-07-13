@@ -1,4 +1,4 @@
-Understanding the Growth Mindset Athlete: Benefits of Effective Growth Mindset for Athletic Performance and Personal Life Balance
+Benefits of Effective Growth Mindset for Athletic Performance and Personal Life Balance
 =================================================================================================================================
 
 Effective growth mindset is essential for achieving peak performance as an athlete and maintaining balance in personal life. In this chapter, we will explore the benefits of effective growth mindset for athletic performance and personal life balance.

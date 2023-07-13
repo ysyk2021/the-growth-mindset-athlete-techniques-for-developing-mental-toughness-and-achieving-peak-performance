@@ -1,7 +1,6 @@
 # Summary
 
 - [Introduction](README.md)
-- [Introduction](chapter-1.md)
   - [The Importance of the Growth Mindset in Athletic Performance](chapter-1-1.md)
   - [Overview of the Book](chapter-1-2.md)
 - [Understanding the Growth Mindset Athlete](chapter-2.md)
@@ -28,8 +27,5 @@
   - [Understanding Common Challenges with the Growth Mindset for Athletes](chapter-7-1.md)
   - [Strategies for Overcoming Fear and Resistance to Change](chapter-7-2.md)
   - [Best Practices for Dealing with Setbacks and Staying on Track with the Growth Mindset for Athletes](chapter-7-3.md)
-- [Conclusion](chapter-8.md)
-  - [Recap of Key Takeaways](chapter-8-1.md)
-  - [Encouragement to Utilize Effective Growth Mindset Techniques for Developing Mental Toughness and Achieving Peak Performance](chapter-8-2.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)

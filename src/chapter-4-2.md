@@ -1,4 +1,4 @@
-Applying the Growth Mindset to Achieve Athletic Excellence: Techniques for Managing Stress and Adversity
+Techniques for Managing Stress and Adversity
 ========================================================================================================
 
 Athletic competition can be incredibly stressful, and athletes must learn how to manage stress and adversity in order to achieve peak performance. In this chapter, we will explore techniques for applying the growth mindset approach to managing stress and adversity.
