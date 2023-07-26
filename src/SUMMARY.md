@@ -2,7 +2,6 @@
 
 - [Introduction](README.md)
   - [The Importance of the Growth Mindset in Athletic Performance](chapter-1-1.md)
-  - [Overview of the Book](chapter-1-2.md)
 - [Understanding the Growth Mindset Athlete](chapter-2.md)
   - [Defining the Growth Mindset Athlete and its Importance in Achieving Peak Performance](chapter-2-1.md)
   - [Key Elements of Successful Growth Mindset Athletes](chapter-2-2.md)

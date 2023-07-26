@@ -1,4 +1,4 @@
-Chapter: Overcoming Challenges with the Growth Mindset for Athletes
+Overcoming Challenges with the Growth Mindset for Athletes
 ===================================================================
 
 Athletes face many challenges in their journey towards success. The growth mindset is a powerful tool that can help athletes overcome these challenges and achieve peak performance. In this chapter, we will explore common challenges faced by athletes when adopting a growth mindset and provide strategies for overcoming them.

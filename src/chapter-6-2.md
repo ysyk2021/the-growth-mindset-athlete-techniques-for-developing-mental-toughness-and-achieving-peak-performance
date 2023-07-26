@@ -34,4 +34,4 @@ Effective staff management is also important for athletic success. By building s
 Conclusion
 ----------
 
-Effective resource management is essential for achieving peak performance in athletics and maintaining balance in all areas of life. By adopting a growth mindset towards resource management, athletes can effectively manage their time, budgets, staff, workload, and personal life, leading to greater success in competition and personal well-being. In the next chapter, we will explore the role of visualization in cultivating a growth mindset and achieving peak athletic performance.
+Effective resource management is essential for achieving peak performance in athletics and maintaining balance in all areas of life. By adopting a growth mindset towards resource management, athletes can effectively manage their time, budgets, staff, workload, and personal life, leading to greater success in competition and personal well-being.
