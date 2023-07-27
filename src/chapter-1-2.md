@@ -1,7 +1,7 @@
 Overview of the Book
 =============================
 
-Welcome to "The Growth Mindset Athlete: Techniques for Developing Mental Toughness and Achieving Peak Performance." In this chapter, we will provide you with an overview of the book, outlining its structure and key concepts. This comprehensive guide aims to empower athletes like you to cultivate a growth mindset, enhance mental toughness, and unlock your full potential in achieving peak performance.
+In this chapter, we will provide you with an overview of the book, outlining its structure and key concepts. This comprehensive guide aims to empower athletes like you to cultivate a growth mindset, enhance mental toughness, and unlock your full potential in achieving peak performance.
 
 **Introduction**
 ----------------
