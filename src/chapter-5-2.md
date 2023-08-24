@@ -1,4 +1,3 @@
-# Gathering Data on Growth Mindset Activities for Athletic Performance
 
 In this chapter, we will explore the importance of gathering data to assess the effectiveness of growth mindset activities in enhancing athletic performance. We will discuss various methods and tools that can be utilized to collect and analyze data, providing valuable insights into athletes' mental toughness and their journey towards achieving peak performance.
 

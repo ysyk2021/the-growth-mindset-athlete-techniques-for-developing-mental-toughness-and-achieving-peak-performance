@@ -1,5 +1,3 @@
-Techniques for Overcoming Fixed Mindset and Embracing Learning Opportunities
-=======================================================================================================================
 
 Cultivating a growth mindset is critical to achieving peak performance as an athlete. However, many athletes may struggle with fixed mindset thinking that can limit their potential for growth and improvement. In this chapter, we will explore techniques for overcoming fixed mindset thinking and embracing learning opportunities to cultivate a growth mindset.
 

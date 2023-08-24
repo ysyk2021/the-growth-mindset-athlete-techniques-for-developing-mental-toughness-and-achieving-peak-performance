@@ -1,5 +1,3 @@
-Conclusion
-==========
 
 In this book, we have explored techniques for developing mental toughness and achieving peak performance through a growth mindset approach. We have covered a range of topics, from goal setting and self-reflection to managing stress and adversity. In this final chapter, we will recap some of the key takeaways from the book and encourage athletes to utilize effective growth mindset techniques for achieving athletic excellence.
 

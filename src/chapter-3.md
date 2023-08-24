@@ -1,5 +1,3 @@
-Cultivating a Growth Mindset for Athletes
-=========================================
 
 Cultivating a growth mindset is essential to achieving peak performance as an athlete. In this chapter, we will explore strategies, techniques, and best practices for developing a growth mindset for athletes.
 

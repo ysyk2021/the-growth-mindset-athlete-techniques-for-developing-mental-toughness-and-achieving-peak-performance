@@ -1,5 +1,3 @@
-Strategies for Developing a Growth Mindset for Athletes
-==================================================================================================
 
 Developing a growth mindset is essential for athletes who want to achieve peak performance. In this chapter, we will explore strategies for developing a growth mindset for athletes.
 

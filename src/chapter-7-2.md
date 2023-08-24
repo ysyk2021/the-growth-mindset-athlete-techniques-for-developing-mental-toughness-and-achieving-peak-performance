@@ -1,10 +1,5 @@
-Strategies for Overcoming Fear and Resistance to Change
-================================================================
 
 In this chapter, we will explore effective strategies for athletes to overcome fear and resistance to change. The growth mindset requires embracing challenges and seeking continuous improvement, but fear and resistance can be significant obstacles to progress. By employing these strategies, athletes can develop mental toughness and achieve peak performance by embracing change with a growth mindset.
-
-**Introduction**
-----------------
 
 Embracing change is crucial for personal growth and development as an athlete. However, fear and resistance often arise when facing the unknown or stepping outside of one's comfort zone. This chapter will provide athletes with strategies to overcome fear and resistance, allowing them to fully embrace change and harness the power of the growth mindset.
 

@@ -1,5 +1,3 @@
-Introduction
-============
 
 Athletic success is not just about physical ability but also mental toughness and resilience. The growth mindset, a concept developed by psychologist Carol Dweck, has gained widespread recognition as an essential component of achieving peak performance in athletics. In this book, we will explore techniques for developing mental toughness and achieving peak performance through the adoption of a growth mindset.
 

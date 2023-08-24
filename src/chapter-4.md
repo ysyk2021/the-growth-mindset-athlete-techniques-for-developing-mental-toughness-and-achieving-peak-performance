@@ -1,5 +1,3 @@
-Applying the Growth Mindset to Achieve Athletic Excellence
-==========================================================
 
 Achieving athletic excellence requires more than just physical skill and ability. It also requires a growth mindset approach that emphasizes resilience, self-reflection, and continuous improvement. In this chapter, we will explore strategies for applying the growth mindset to achieve athletic excellence, as well as techniques for managing stress and adversity and promoting positive relationships and collaboration with coaches, teammates, and opponents.
 

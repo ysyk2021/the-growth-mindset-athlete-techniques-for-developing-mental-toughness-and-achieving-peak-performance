@@ -1,5 +1,3 @@
-Techniques for Managing Time, Budget, and Staff Resources with the Growth Mindset
-==========================================================================================================================================
 
 Effective resource management is essential for achieving peak performance in athletics and maintaining balance in personal life. In this chapter, we will explore specific techniques for managing time, budget, and staff resources with the growth mindset.
 

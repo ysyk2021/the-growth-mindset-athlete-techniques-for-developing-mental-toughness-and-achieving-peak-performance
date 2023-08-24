@@ -1,5 +1,3 @@
-Best Practices for Promoting Positive Relationships and Collaboration with Coaches, Teammates, and Opponents through the Growth Mindset
-===================================================================================================================================================================================================
 
 In addition to individual techniques for developing mental toughness and achieving peak performance, applying the growth mindset approach can also help athletes build positive relationships and collaborate effectively with coaches, teammates, and opponents. In this chapter, we will explore best practices for promoting positive relationships and collaboration through the growth mindset.
 
@@ -32,5 +30,4 @@ Conclusion
 ----------
 
 Applying the growth mindset approach to building positive relationships and collaboration with coaches, teammates, and opponents is critical to achieving athletic excellence. By emphasizing effort and learning, encouraging feedback and self-reflection, fostering a supportive environment, practicing empathy and respect, and embracing diversity and inclusion, athletes can build strong relationships and work collaboratively towards common goals. As such, it is important for coaches, team leaders, and athletes to prioritize these best practices as part of their overall strategy for success.
-
 

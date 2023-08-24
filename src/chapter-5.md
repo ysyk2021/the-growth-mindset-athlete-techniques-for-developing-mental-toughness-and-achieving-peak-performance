@@ -1,5 +1,3 @@
-Measuring the Success of Your Growth Mindset Efforts for Athletic Performance
-=============================================================================
 
 In order to evaluate the effectiveness of growth mindset techniques in achieving athletic performance, it is important to choose appropriate metrics and gather data on growth mindset activities. In this chapter, we will explore best practices for measuring the success of your growth mindset efforts for athletic performance.
 

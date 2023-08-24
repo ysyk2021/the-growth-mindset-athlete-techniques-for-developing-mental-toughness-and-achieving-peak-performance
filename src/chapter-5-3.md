@@ -1,10 +1,5 @@
-Using Feedback to Continuously Improve Growth Mindset Efforts for Athletic Performance
-===============================================================================================
 
 In this chapter, we will explore the invaluable role of feedback in the continuous improvement of growth mindset efforts for athletic performance. Understanding how to effectively use feedback as a growth mindset athlete can significantly enhance your ability to develop mental toughness and achieve peak performance.
-
-**Introduction**
-----------------
 
 Feedback serves as a powerful tool for athletes striving to maximize their potential. By embracing feedback with a growth mindset, athletes can extract valuable insights, identify areas for improvement, and make adjustments to their training and performance. This chapter will delve into strategies and techniques for utilizing feedback to fuel your growth mindset efforts in athletic performance.
 

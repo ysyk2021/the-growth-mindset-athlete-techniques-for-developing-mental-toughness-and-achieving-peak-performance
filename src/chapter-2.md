@@ -1,5 +1,3 @@
-Understanding the Growth Mindset Athlete
-========================================
 
 The growth mindset athlete is an individual who prioritizes learning, resilience, and continuous improvement. In this chapter, we will explore key elements of successful growth mindset athletes and the benefits of effective growth mindset for athletic performance and personal life balance.
 
@@ -39,5 +37,4 @@ Conclusion
 ----------
 
 The growth mindset athlete is an individual who prioritizes learning, resilience, and continuous improvement. By embracing challenges, seeking out new experiences, and prioritizing collaboration and teamwork over individual achievement, the growth mindset athlete can develop the resilience and mental toughness needed to succeed at the highest level of competition. Additionally, effective growth mindset has several benefits for both athletic performance and personal life balance. As such, it is important for athletes to prioritize the development of a growth mindset as part of their overall training and preparation strategy.
-
 

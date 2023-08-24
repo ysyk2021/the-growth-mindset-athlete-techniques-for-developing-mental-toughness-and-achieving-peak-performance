@@ -1,5 +1,3 @@
-Best Practices for Nurturing Personal and Professional Growth through the Growth Mindset
-===================================================================================================================================
 
 Nurturing personal and professional growth through the growth mindset is critical to achieving athletic excellence. In this chapter, we will explore best practices for cultivating a growth mindset and nurturing personal and professional growth.
 

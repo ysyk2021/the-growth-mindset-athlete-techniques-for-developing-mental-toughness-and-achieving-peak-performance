@@ -1,5 +1,3 @@
-Encouragement to Utilize Effective Growth Mindset Techniques for Developing Mental Toughness and Achieving Peak Performance
-================================================================================================================================================
 
 In this book, we have explored the power of the growth mindset in sports. We discussed how adopting a growth mindset can help athletes develop mental toughness and achieve peak performance.
 
