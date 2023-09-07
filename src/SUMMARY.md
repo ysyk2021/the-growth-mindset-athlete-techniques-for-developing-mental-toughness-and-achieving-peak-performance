@@ -28,3 +28,4 @@
   - [Best Practices for Dealing with Setbacks and Staying on Track with the Growth Mindset for Athletes](chapter-7-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)
